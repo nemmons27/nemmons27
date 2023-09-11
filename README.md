@@ -1,6 +1,6 @@
 # Hey I’m Nicholas and I'm a fresh software engineer with a thirst too learn more.
 
-### Always eager to learn something new. Also, very big anime fan. My opinions will shake you more than Whiteboard from One Piece 😂. Any quick tips about coding? Send me an email @ Emmonsnicholas1@gmail.com 
+### Always eager to learn something new. Also, very big anime fan. My opinions will shake you more than Whitebeard from One Piece 😂. Any quick tips about coding? Send me an email @ Emmonsnicholas1@gmail.com 
 ### looking forward to learning more, check back in for the journey.⛵️
 
 <!--
